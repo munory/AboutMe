@@ -1,2 +1,2 @@
 Меня зовут Екатерина и я учусь на java-разработчика
-![](https://i.yapx.cc/V90NF.png)
+![](https://i.yapx.ru/V90OW.png)
